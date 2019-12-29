@@ -6,6 +6,7 @@ Here is some information about me :
   2. I really like motorcycles and love to travel on a bike
   3. I love to read up on the latest tech news
   4. Android > IOS, nuff said
+
 Currently studying in Symbiosis International University in Pune, India.
 
 
